@@ -1,2 +1,1 @@
-# Smash-Forces
-trying to give "rating" a new meaning
+i should probably spend my free time getting a graduation prom date but here i am
